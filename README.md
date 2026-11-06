@@ -1,2 +1,0 @@
-# techhendata.com
-techhendata.com
